@@ -1,4 +1,3 @@
-<!doctype html>
 <html>
 <head>
 <title>小红帽直播网址，七彩直播，水仙直播，各种直播回家地址</title>
