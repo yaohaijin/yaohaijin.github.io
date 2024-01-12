@@ -1,1 +1,67 @@
-# yaohaijin.github.io
+<!doctype html>
+<html>
+<head>
+<title>小红帽直播网址，七彩直播，水仙直播，各种直播回家地址</title>
+<meta http-equiv="Content-Type" content="text/html; charset=utf-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0, user-scalable=0, minimum-scale=1.0, maximum-scale=1.0">
+<meta name="apple-mobile-web-app-capable" content="yes">
+<meta name="apple-mobile-web-app-status-bar-style" content="black">
+</head>
+<style type="text/css">
+body{padding:0;margin:0;line-height:26px;background-color:#fff;}
+a{text-decoration: none;color:#54488f;}
+.support{border:0; padding:0; margin:0 auto; /*background:#FAFAFA; */font-size:16px; color:#575757;max-width:720px;}
+.support h1{color:#343b46;margin:0 0 5px; font-size:18px; font-weight:bold;display:block;background-color:#F3F3F3;padding:12px 15px;}
+.support h2{color:#343b46;margin:0 0 5px; font-size:16px; font-weight:bold;display:block;background-color:#F3F3F3;padding:12px 15px;}
+.support p{padding:5px 15px;line-height:36px;}
+</style>
+<body>
+<div class="support">
+	<h1>小红帽直播网址，七彩直播，水仙直播，各种直播回家地址</h1>
+	<p >
+		<br/>
+		<font color="red">小红帽直播，只想做你的小红帽 下载网址（复制地址到浏览器中打开）：</font>
+
+<p>https://www.554567.xyz/8a</p>
+
+
+<p>https://www.884567.win/q9</p>
+
+
+<p>https://www.442345.xyz/e0</p>
+
+
+<p>https://www.884567.win/1z</p>
+	</p>
+	
+<p>下载完后，一定要注册登录，不要以游客登录，不然账号无法找回，建议绑定手机号防止以后丢失账号，回家地址找不到,有可能链接也无法打开。</p>
+
+<p>另外再推荐一些其他的直播平台</p>
+
+<h2><p><font color="red">复制网址到浏览器，苹果一定要用自带浏览safari，安卓用谷歌浏览器或者火狐浏览器。 </font></p></h2>
+
+<p>七彩直播  https://www.442345.xyz/qicai</p>
+<p>七彩直播最新地址  https://www.884567.win/qicai</p>
+
+<p>妲己直播 https://www.442345.xyz/daji</p>
+<p>妲己直播最新地址 https://www.884567.win/daji</p>
+
+<p>水仙直播 https://www.442345.xyz/shuixian</p>
+<p>水仙直播最新地址 https://www.884567.win/shuixian</p>
+
+<p>百丽直播 https://www.442345.xyz/baili</p>
+<p>百丽直播最新地址 https://www.884567.win/baili</p>
+
+<p>新月直播 https://www.442345.xyz/xinyue</p>
+<p>新月直播最新地址 https://www.884567.win/xinyue</p>
+
+<p>小红帽直播 https://www.442345.xyz/xiaohongmao</p>
+<p>小红帽直播最新地址 https://www.884567.win/xiaohongmao</p>
+
+<p>夜月直播 https://www.442345.xyz/yeyue</p>
+<p>夜月直播最新地址 https://www.884567.win/yeyue</p>
+
+<p>如果找不到最新地址可以添加qq群获取最新的，小红帽直播（小红帽回家地址）最新qq群：421093899  最新qq二群：313340347  最新qq三群：576289377  最新qq四群： 585854107</p>
+</div>
+</body>
+</html>
